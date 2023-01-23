@@ -1,0 +1,38 @@
+---
+Szerző: Vágvölgyi Gusztáv - Pabló
+Cím: Vezessek, vagy hagyjam az önszerveződésre?
+Cimkék: 
+Típus: Cselekvési tipp
+Elérhetőség: Ingyenes
+Szint: Kezdő
+---
+### Tudatosítsátok a körök rendszerét!
+
+A körök rendszere a közösségek legalapvetőbb, az önszerveződés által magától is kialakuló rendszere, amelyet a közösségi tagok különböző mértékű felelősségvállalása teljesen természetes módon hoz létre. (Link: Hogyan kerüljük el, hogy közösségünk szétessen a vezetés hiánya miatt?) Ami problémát szokott okozni, hogy a közösség tagjai, különösen a vezetői nem tudatosítják közösségük köreit, és nem kezdik el használni az egymás közötti megegyezéseik (belső szerződéseik) során.
+
+Milyen problémákat okozhat ez?
+
+-   Nem alakul ki a közösség vezetési rendszere, így a vezetés hiánya, rendezetlensége folyamatos működési problémákat okoz, ami a közösség életének szinte minden területén fog jelentkezni pl. nincsenek következetesen végig víve folyamatok, így a befektetett idő és energia elvész, sem a lehetőségekkel, sem a problémákkal nem foglalkozik senki, így nem fejlődik a közösség.  Mindennek az eredményeképp az együttműködés a közösség tagjai számára egyre deficitesebb lesz és az ebből származó konfliktusokat sem kezeli senki.
+    
+-   A nagyobb felelősséget vállalók elmagányosodnak, mert egyrészt minden olyan feladat amit nem végez el valaki rájuk marad, így a végletekig túlterhelődnek, ami a kiégés negatív spiráljába taszítja őket. Ennek következtében sem a saját emberi kapcsolataikra, sem a közösség viszonyrendszerének ápolásra nem marad idejük, ami egyenes út a közösség szétesése felé.
+    
+-   A közösség több feladatot vállal el, mint ami a teherbíró képessége, így mindenki túlterhelődik, ami aztán konfliktusokhoz, elégedetlenséghez vezet: “nem azért jöttem a közösségbe, hogy itt ugyanúgy kidolgozzam a belem, mint a munkahelyemen”.
+    
+-   Mivel a közösség tagjai között nem tiszták az együttműködésük keretei, ezért nagyon sok rejtett elvárással lesznek egymás irányába, ami mindenkiben frusztrációt kelt, amit jellemzően az aki túlterhelődik ki is fejez a többiek irányába: pl.: “Tök jó, hogy ezt most megcsináltad, de ettől sokkal több feladat van. Te nem is látod, hogy én hétköznap éjszakázok, hogy minden meglegyen. Egyszerűen már nem bírom az éjszakázást. Azt gondolom, hogy itt mindenki ugyanolyan közösségi tag, mint én így nem  is értem, hogy senki nem veszi észre rajtam kívül az elvégzetlen feladatokat.” Mindennek az eredményeképp a közösség tagjai motiválatlanná válnak, hiszen bármit tesznek csak azt kapják, hogy az nem elég. Aminek a következtében eltávolodnak a közösségtől.
+    
+
+Ha a fenti problémákat meg akarjuk előzni, akkor fontos tudatosítani a körök rendszerét, ebben a tippben ehhez javaslunk egy egyszerű módszert. 
+
+A legegyszerűbb módja a tudatosításnak, hogy egy közösségi folyamatban megrajzoljuk a köreinket. Természetesen már itt érdemes leszögezni, hogy ez nem egy egyszerű rajzolási feladat, hanem sokkal inkább a közösségünk tagjainak bizalom és őszinteség próbája. Ezért azt, hogy kiket  és milyen lépésekben érdemes ebbe bevonni sok mindentől függ. Ha ebben bizonytalanok vagytok, érdemes közösségfejlesztő tanácsadót bevonni a folyamat facilitálásába. Ami jó kiindulópont lehet, hogy a legnagyobb felelősséget vállalók (vezetői mag) konszenzusra törekedve közösen rajzolják meg a körök rendszerét. Ha nagyon jó a bizalmi szint a közösségben - tehát nyíltan lehet beszélni a tagok személyes elköteleződéséről, felelősségvállalásáról - akkor működőképes lehet teljes körben is. Ugyanakkor már az is előrelépést jelenthet, ha a vezető magának felrajzolja, de ez lesz a legkevésbé hatással a közösség életére.
+
+Fontos, hogy a köröket szaggatott vonallal rajzoljuk meg, hiszen ezzel jelezzük, hogy a körök rendszere folyamatosan változhat. Így az amit most felrajzolunk, egy folyamatnak a jelenben kimerevített pillanatnyi képe. Ennek az ábrázolásnak nagy jelentősége van abból a szempontból, hogy tudatosítjuk: a körök minden közösségi tag számára oda-vissza átjárhatóak. Ha tehát valaki szeretne beljebb, vagy kijjebb kerülni akkor ezt megteheti.  Ezzel tudjuk enyhíteni azt a frusztrációt, amit az okoz, hogy a közösségi tagok most szembesülnek azzal, hogy az eddigi felelősségvállalásuk hova is helyezi őket a körök rendszerében. Sokszor elhangzik egy ilyen folyamatban, hogyha tudtam volna, hogy mit kell/lehet még csinálni, akkor szívesen vállaltam volna több feladatot, nagyobb felelősséget. Ezek a mondatok jelzik, hogy a vezetői mag (időnként a vezető) nem képes még jól delegálni feladatokat, ami megint csak indikátora annak, hogy nincs rendben a vezetés rendszere a közösségben.
+
+A rajzolást érdemes belülről kifelé kezdeni, azaz a legnagyobb felelősséget vállaló tag nevét beírni középre és hozzá képest haladni tovább.  Ha ez sikerül, akkor jöhet az a kérdés, hogy van-e olyan tag aki legalább ugyanakkora felelősségvállalással van a közösségben. Ezt konkrét szituációk felidézésével lehet megbeszélni. Természetesen a legfontosabb érv ebben a szóban forgó tag saját megélése, azonban azt is látni kell, hogy az emberek sokszor alábecsülik a szerepüket, felelősségvállalásukat. Ezért megesik, hogy a legnagyobb felelősségvállalású tag beírása is már nehézségbe ütközik. Ezért jó, ha nem csak arra támaszkodunk amit magáról mond, hanem a többiek meglátásaira is. Így aztán egy ilyen beszélgetés az egymásnak adott visszajelzések miatt is igen fontossá válhat. Láttam már olyat, amikor egy ilyen folyamatban teljesen meghatódott az egyik csomóponti szereplő, mert úgy érezte most először kap tényleges visszajelzést a munkájára. Na persze ez indikátora annak, hogy probléma van a visszajelzésekkel és jöhet a közösség értékelési rendszerének fejlesztése. Ami azt jelenti, hogy el kell kezdenünk tudatosan visszatekinteni, értékelni az együttműködésünket, mind egy-egy projekt után, mind időszakonként pl. évente az egész tevékenységünkre vonatkozóan.
+
+A megrajzolt körök rendszere csak akkor lesz használható, ha teljes őszinteséggel tud elkészülni. Ha, a vezetői mag elkezd mindenkit a legbelső körbe rajzolni azért, mert “mindenki olyat sokat tesz a közösségért és mindent megteszünk amire képesek vagyunk”, akkor ennek semmi haszna nem lesz. 
+
+Az egyik leggyakrabban elkövetett  hiba a felelősségvállalás köreinek kialakításánál, hogy az operatív feladat vállalást és a közösségért vállalt felelősséget összekeverjük. Hiszen lehetnek olyanok, akik sok feladatot vállalnak, de nem akarnak ezek kitalálásában, tervezésében, a közösségi folyamatok problémamegoldásában részt venni, így az ilyen tagok a felelősségvállalási körökben kintebb lesznek, mint azok akik pl. élethelyzetük miatt nem tudnak sok feladatot vállalni, de a stratégiai kérdésekben, vagy akár a problémamegoldásban szívesen részt vesznek. 
+
+Azonban, ha sikerül őszinte önreflexióval tudatosítani a körök rendszerét és ezáltal meglátjuk, hogy például:  csupán egyetlen ember van a legbelső körben és a legnagyobb felelősséget vállaló tagunk mindjárt kiég, a kapacitásainkhoz képest lényegesen túlvállaltuk magunkat, a tagok motivációja és felelősségvállalása csökken és ezért egyre inkább kifelé és nem befelé haladnak a köreinkben. Akkor tudatos belső építkezéssel, a kapacitásaink és a céljaink újrakalibrálásával, egymást segítő az emberi oldalt is figyelembe vevő módon sikerülhet újra építeni a bizalmat és így a megegyezéseink is újra működni fognak. Ezért a körök rendszere, azaz a felelősségvállalás hierarchiájának tudatosítása a közösségek legfontosabb rendszere.
+
+**
